@@ -1,6 +1,4 @@
--  Halo,aku windy 
--  Aku suka kalian
--  kalian sayang aku ga?
--  hihi 
--  wufyu hihi
+wiy eloy ini namanya apa coba?
+         aku asal ngetik aja,ini ada gunanya ga sie
+  
 
