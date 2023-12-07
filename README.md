@@ -1,6 +1,6 @@
 -  Halo,aku windy 
--  Aku suka kamu
--  kamu suka aku ga?
--  hihi mau jadi pacar aku?
+-  Aku suka kalian
+-  kalian sayang aku ga?
+-  hihi 
 -  wufyu hihi
 
